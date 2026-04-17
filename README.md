@@ -6,7 +6,7 @@
 
 ## 📌 Về mình
 
-- 🎓 Sinh viên **Công nghệ thông tin** tại Đại học TopCV
+- 🎓 Sinh viên **Công nghệ thông tin** tại Đại học Thủ Dầu Một
 - 📍 TPHCM — 48A, đường Nguyễn Văn Nì, xã Tân An Hội
 - 📧 phucbao.051104@gmail.com
 - 📱 0397829284
